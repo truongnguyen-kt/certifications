@@ -18,4 +18,4 @@
 
  - [Academic Skills for University Success](https://coursera.org/share/14dd8623e2b82785a008b59911578eaf)
  
-![image](https://user-images.githubusercontent.com/93564056/230346061-627cba14-432d-4cd2-a126-adb44fb4bfdc.png)
+![image](https://user-images.githubusercontent.com/93564056/230346938-16b4dbf3-94b9-459c-83b9-718f9ec4fcec.png)
